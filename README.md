@@ -2,7 +2,7 @@
 - 👀 I’m interested in l'Intelligence Artificielle, Grande Donnée et Base de Donnée
 - 🌱 I’m currently learning Data Base
 - 💞️ I’m looking to collaborate on enterorise Internet, Hardzare.
-- 📫 reach par mail adam19822708835@163.com
+- 📫 reach par mail yang.xiang@etu.utc.fr
 - 😄 Pronouns: adam
 - ⚡ Fun fact: dormir
 
